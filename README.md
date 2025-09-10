@@ -1,6 +1,7 @@
 
 ## working on this thing...
-<img width="150" h(<img width="1382" height="797" alt="image" src="https://github.com/user-attachments/assets/d44861af-56bd-4d97-b9d6-ae823e6a96c9" /
+<img width="1382" height="797" alt="image" src="https://github.com/user-attachments/assets/41f6baf5-70a4-4557-a95c-5b5d010a407a" />
+
 (https://youtu.be/pX-fUHhrU3Ym>)
 
 
