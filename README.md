@@ -1,7 +1,8 @@
 
 ## working on this thing...
 <img width="150" height="27" alt="image" src="https://github.com/user-attachments/assets/300dff9d-5b67-4a21-8412-9bcd0c648e4c" />
-[![Watch the video](https://img.youtube.com/vi/<VIDEO_ID>/hqdefault.jpg)](https://youtu.be/pX-fUHhrU3Ym>)
+[![Watch the video](<img width="1382" height="797" alt="image" src="https://github.com/user-attachments/assets/d44861af-56bd-4d97-b9d6-ae823e6a96c9" />
+)](https://youtu.be/pX-fUHhrU3Ym>)
 
 
 <img width="150" height="27" alt="image" src="https://github.com/user-attachments/assets/2a7a94b6-034b-45fc-9939-dafb64dc4840" />
