@@ -2,7 +2,7 @@
 ## WH4T I G0T Y0U [[WANT IT]]!! TAKE IT...[TAKE IT!]
 <img width="1382" height="797" alt="image" src="https://github.com/user-attachments/assets/41f6baf5-70a4-4557-a95c-5b5d010a407a" />
 
-(https://youtu.be/pX-fUHhrU3Ym>)
+(https://youtu.be/pX-fUHhrU3Ym>) ***<<< [CLICK HERE]!! (its not a rickroll i swear)***
 
 
 <img width="150" height="27" alt="image" src="https://github.com/user-attachments/assets/2a7a94b6-034b-45fc-9939-dafb64dc4840" />
