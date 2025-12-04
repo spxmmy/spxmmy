@@ -3,7 +3,7 @@
 ## WH4T I G0T Y0U [[WANT IT]]!! TAKE IT...[TAKE IT!]
 <img width="704" height="704" alt="image" src="https://github.com/user-attachments/assets/ae7c233a-0bff-4b92-aaf8-029db283400e" />
 
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/07baba6c-5101-4060-a6e8-b7f27faf4908" />
+https://gifcity.carrd.co/assets/images/gallery81/e1f90f70.png?v=e3c0bc0f
 
 _**SIGN MY ATABOOK!! :3**_ https://pl4yw1thm3.atabook.org/
 <img width="596" height="42" alt="image" src="https://github.com/user-attachments/assets/091cc9ff-d683-4c71-9a7e-f85c1131129d" />
