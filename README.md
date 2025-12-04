@@ -1,15 +1,14 @@
+<img width="468" height="60" alt="image" src="https://github.com/user-attachments/assets/5918c160-1314-4377-9b8d-9a99b79163d6" />
 
 ## WH4T I G0T Y0U [[WANT IT]]!! TAKE IT...[TAKE IT!]
 <img width="704" height="704" alt="image" src="https://github.com/user-attachments/assets/ae7c233a-0bff-4b92-aaf8-029db283400e" />
 
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/07baba6c-5101-4060-a6e8-b7f27faf4908" />
 
 _**SIGN MY ATABOOK!! :3**_ https://pl4yw1thm3.atabook.org/
-
+<img width="596" height="42" alt="image" src="https://github.com/user-attachments/assets/091cc9ff-d683-4c71-9a7e-f85c1131129d" />
 (https://youtu.be/pX-fUHhrU3Ym>) ***<<< [CLICK HERE]!! (its not a rickroll i swear)***
 
-
-
-<img width="150" height="27" alt="image" src="https://github.com/user-attachments/assets/2a7a94b6-034b-45fc-9939-dafb64dc4840" />
 
 
 <!--
