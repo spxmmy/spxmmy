@@ -9,7 +9,6 @@ _**SIGN MY ATABOOK!! :3**_ https://pl4yw1thm3.atabook.org/
 
 ![clichere](https://github.com/user-attachments/assets/e6ec8793-51a9-4a00-a89f-5b7cb147d56b)
 
-_**SIGN MY ATABOOK!! :3**_ https://pl4yw1thm3.atabook.org/
 (https://youtu.be/pX-fUHhrU3Ym>) ***<<< [CLICK HERE]!! (its not a rickroll i swear)*** 
 
 ![cungadero](https://github.com/user-attachments/assets/f3faf52f-3476-40f8-91c5-2a7c1b4a02b3)
